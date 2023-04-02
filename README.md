@@ -1,1 +1,1 @@
-Link to this Project - https://parulchaddha.github.io/Tindog/
+Link to this Project - 
